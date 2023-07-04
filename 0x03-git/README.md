@@ -1,1 +1,1 @@
-Hello there
+Wind's howling.
